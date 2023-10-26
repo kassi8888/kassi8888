@@ -12,4 +12,4 @@ kassiane.kunzel@escola.pr.gov.br
 
 @kassiane
 
-![](https://tenor.com/pt-BR/view/happy-dance-party-dancing-bff-gif-16628559)
+![](https://media.tenor.com/tlU4uk8DV28AAAAC/minions-mic-drop.gif)
